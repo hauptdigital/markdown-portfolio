@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Patrick
+2. Taddeus
+3. Mr. Krabs
